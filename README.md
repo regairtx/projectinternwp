@@ -7,3 +7,4 @@ in India
 • Highlight Opportunities: Showcase the potential of India as a destination for FDI, emphasizing the attractive sectors and the overall growth
 potential.
 • Spark Interest: Generate interest among potential investors by presenting a clear and compelling picture of the Indian FDI landscape
+![projectvishal_page-0003](https://github.com/user-attachments/assets/bcfcc489-2d0f-42f6-ad87-017bafab07c6)
